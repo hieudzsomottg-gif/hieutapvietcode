@@ -1,2 +1,0 @@
-# hieutapvietcode
-hơi gà xíu
